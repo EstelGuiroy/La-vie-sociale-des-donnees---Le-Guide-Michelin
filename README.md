@@ -103,11 +103,11 @@ Lien vers nos entretiens : (https://drive.google.com/drive/folders/1o9HBfqsu37rV
 
 ## Bibliographie
 
-### Livre 
+#### Livre
 
 PORTER, Theodore.  Trust in Numbers: The Pursuit of Objectivity in Science and Public Life, Princeton University Press, 2020
 
-### Articles 
+#### Articls 
 
 POULLENNEC, Gwendal. Le guide Michelin : une référence mondiale de la gastronomie locale, Le journal de l'école de Paris du management, vol. 89, no. 3, 2011, pp. 37-42.
 HUGOL-GENTIAL, Clémentine, MICHON, David. “Perdre ou renoncer aux étoiles : analyse des discours médiatiques et paroles de chefs à l’ère de la transparence”, Communication & Langages, vol. 4, no. 206, 2020, pp. 35-49
