@@ -121,13 +121,13 @@ CROISET, Laure. SOUBRANNE, Quentin. Pourquoi le guide Michelin doit se réinvent
 
 DELBECQUE, Céline. Le Guide Michelin fait-il toujours rêver ? L’Express – Actualité – Société. Mis en ligne le 17.01.2020. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver? - L'Express (lexpress.fr)](https://www.lexpress.fr/actualite/societe/le-guide-michelin-fait-il-toujours-rever_2115337.html) 
 
-* Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : 
+Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : [Le Guide Michelin, une longue histoire](https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
 
 Guide MICHELIN – Restauration : [Restaurants MICHELIN - Le Guide MICHELIN](https://guide.michelin.com/fr/fr/restaurants)
 
 * Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michelin. Mis en ligne le 30.05.2022. Consulté le 17.11.2022. Disponible sur : 
 
-* “Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : (https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
+* “Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : 
 
 PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)]
 
