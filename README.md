@@ -129,7 +129,7 @@ Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michel
 
 “Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : [“Le Guide MICHELIN : une expertise et un savoir-faire unique”](https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
 
-PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)]
+PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)](https://cuisine.journaldesfemmes.fr/chefs-et-gastronomie/2610723-choses-a-savoir-sur-le-guide-michelin/)
 
 Radio France. Marc Veyrat attaque le guide Michelin en justice. France Info - Culture. Mis en ligne le 23.09.2019. Consulté le 21.11.2022. Disponible sur : [Marc Veyrat attaque le guide Michelin en justice : "J'ai été déshonoré. C'est une offense profonde. J'ai fait une dépression" (francetvinfo.fr)](https://www.francetvinfo.fr/culture/cuisine-et-gastronomie/guide-michelin/marc-veyrat-attaque-le-guide-michelin-en-justice-j-ai-ete-deshonore-c-est-une-offense-profonde-j-ai-fait-une-depression_3629041.html) 
 
