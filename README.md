@@ -107,36 +107,30 @@ Lien vers nos entretiens : (https://drive.google.com/drive/folders/1o9HBfqsu37rV
 
 PORTER, Theodore.  Trust in Numbers: The Pursuit of Objectivity in Science and Public Life, Princeton University Press, 2020
 
-#### Articls 
+#### Articles 
 
 POULLENNEC, Gwendal. Le guide Michelin : une référence mondiale de la gastronomie locale, Le journal de l'école de Paris du management, vol. 89, no. 3, 2011, pp. 37-42.
+
 HUGOL-GENTIAL, Clémentine, MICHON, David. “Perdre ou renoncer aux étoiles : analyse des discours médiatiques et paroles de chefs à l’ère de la transparence”, Communication & Langages, vol. 4, no. 206, 2020, pp. 35-49
 
-Sites web
+#### Sites web
 
-CRESPIM BIDARRA, Baptiste. Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? Atabula – Décryptage. Mis en ligne le 07.03.2022. Consulté le 21.11.2022. Disponible sur : Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? - ATABULA - Edition générale
-CROISET, Laure. SOUBRANNE, Quentin. Pourquoi le guide Michelin doit se réinventer. Challenges – Gastronomie. Mis en ligne le 05.02.2018. Consulté le 21.11.2022. Disponible sur : Pourquoi le guide Michelin doit se réinventer, alors que le chef Sébastien Bras a décidé de quitter le Guide - Challenges
-DELBECQUE, Céline. Le Guide Michelin fait-il toujours rêver ? L’Express – Actualité – Société. Mis en ligne le 17.01.2020. Consulté le 21.11.2022. Disponible sur : Le Guide Michelin fait-il toujours rêver? - L'Express (lexpress.fr)
-Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : Le guide MICHELIN, une longue histoire
-Guide MICHELIN – Restauration : Restaurants MICHELIN - Le Guide MICHELIN
-Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michelin. Mis en ligne le 30.05.2022. Consulté le 17.11.2022. Disponible sur : Tout savoir sur les inspectrices et inspecteurs du Guide MICHELIN
-“Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur :I– Le Guide MICHELIN : une expertise et un savoir-faire unique
-PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)
-Radio France. Marc Veyrat attaque le guide Michelin en justice. France Info - Culture. Mis en ligne le 23.09.2019. Consulté le 21.11.2022. Disponible sur : Marc Veyrat attaque le guide Michelin en justice : "J'ai été déshonoré. C'est une offense profonde. J'ai fait une dépression" (francetvinfo.fr)
+CRESPIM BIDARRA, Baptiste. Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? Atabula – Décryptage. Mis en ligne le 07.03.2022. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? - ATABULA - Edition générale](https://atabula.com/2022/03/07/le-guide-michelin-fait-il-toujours-rever-la-nouvelle-generation-de-chefs/)
+
+CROISET, Laure. SOUBRANNE, Quentin. Pourquoi le guide Michelin doit se réinventer. Challenges – Gastronomie. Mis en ligne le 05.02.2018. Consulté le 21.11.2022. Disponible sur : [Pourquoi le guide Michelin doit se réinventer, alors que le chef Sébastien Bras a décidé de quitter le Guide - Challenges](https://www.challenges.fr/lifestyle/gastronomie/pourquoi-le-guide-michelin-doit-se-reinventer-alors-que-le-chef-sebastien-bras-a-decide-de-quitter-le-guide_565349)
+
+DELBECQUE, Céline. Le Guide Michelin fait-il toujours rêver ? L’Express – Actualité – Société. Mis en ligne le 17.01.2020. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver? - L'Express (lexpress.fr)](https://www.lexpress.fr/actualite/societe/le-guide-michelin-fait-il-toujours-rever_2115337.html) 
+
+* Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : 
+
+Guide MICHELIN – Restauration : [Restaurants MICHELIN - Le Guide MICHELIN](https://guide.michelin.com/fr/fr/restaurants)
+
+* Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michelin. Mis en ligne le 30.05.2022. Consulté le 17.11.2022. Disponible sur : 
+
+* “Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : (https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
+
+PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)]
+
+Radio France. Marc Veyrat attaque le guide Michelin en justice. France Info - Culture. Mis en ligne le 23.09.2019. Consulté le 21.11.2022. Disponible sur : [Marc Veyrat attaque le guide Michelin en justice : "J'ai été déshonoré. C'est une offense profonde. J'ai fait une dépression" (francetvinfo.fr)](https://www.francetvinfo.fr/culture/cuisine-et-gastronomie/guide-michelin/marc-veyrat-attaque-le-guide-michelin-en-justice-j-ai-ete-deshonore-c-est-une-offense-profonde-j-ai-fait-une-depression_3629041.html) 
 
 
-
-
-
-
-
-
-
-
-Sites web :
--          Site Du Guide Michelin – Restauration : [Restaurants MICHELIN - Le Guide MICHELIN](https://guide.michelin.com/fr/fr/restaurants)
--          CROISET, Laure. SOUBRANNE, Quentin. Pourquoi le guide Michelin doit se réinventer. Challenges – Gastronomie. Mis en ligne le 05.02.2018. Consulté le 21.11.2022. Disponible sur : [Pourquoi le guide Michelin doit se réinventer, alors que le chef Sébastien Bras a décidé de quitter le Guide - Challenges](https://www.challenges.fr/lifestyle/gastronomie/pourquoi-le-guide-michelin-doit-se-reinventer-alors-que-le-chef-sebastien-bras-a-decide-de-quitter-le-guide_565349)
--          CRESPIM BIDARRA, Baptiste. Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? Atabula – Décryptage. Mis en ligne le 07.03.2022. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver la nouvelle génération de chefs ? - ATABULA - Edition générale](https://atabula.com/2022/03/07/le-guide-michelin-fait-il-toujours-rever-la-nouvelle-generation-de-chefs/)
--          DELBECQUE, Céline. Le Guide Michelin fait-il toujours rêver ? L’Express – Actualité – Société. Mis en ligne le 17.01.2020. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver? - L'Express (lexpress.fr)](https://www.lexpress.fr/actualite/societe/le-guide-michelin-fait-il-toujours-rever_2115337.html)
--          PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)](https://cuisine.journaldesfemmes.fr/chefs-et-gastronomie/2610723-choses-a-savoir-sur-le-guide-michelin/)
--          Radio France. Marc Veyrat attaque le guide Michelin en justice. France Info - Culture. Mis en ligne le 23.09.2019. Consulté le 21.11.2022. Disponible sur : [Marc Veyrat attaque le guide Michelin en justice : "J'ai été déshonoré. C'est une offense profonde. J'ai fait une dépression" (francetvinfo.fr)](https://www.francetvinfo.fr/culture/cuisine-et-gastronomie/guide-michelin/marc-veyrat-attaque-le-guide-michelin-en-justice-j-ai-ete-deshonore-c-est-une-offense-profonde-j-ai-fait-une-depression_3629041.html) 
