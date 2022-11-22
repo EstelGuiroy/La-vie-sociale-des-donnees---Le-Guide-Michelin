@@ -125,9 +125,9 @@ Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022
 
 Guide MICHELIN – Restauration : [Restaurants MICHELIN - Le Guide MICHELIN](https://guide.michelin.com/fr/fr/restaurants)
 
-* Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michelin. Mis en ligne le 30.05.2022. Consulté le 17.11.2022. Disponible sur : 
+Guide MICHELIN - Tout savoir sur les inspectrices et inspecteurs du Guide Michelin. Mis en ligne le 30.05.2022. Consulté le 17.11.2022. Disponible sur : [Tout savoir sur les inspectrices et inspecteurs du Guide Michelin](https://guide.michelin.com/fr/fr/article/features/tout-savoir-sur-les-inspecteurs-du-guide-michelin)
 
-* “Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : 
+“Le Guide MICHELIN : une expertise et un savoir-faire unique”, Dossier de presse Hôtellerie et restauration académie de Versailles. Disponible sur : [“Le Guide MICHELIN : une expertise et un savoir-faire unique”](https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
 
 PRZYMIRSKI, Océanne Alisson. Macaron ou étoile, assiette… : Comprendre le Guide Michelin. Le journal des femmes – Cuisine. Mis en ligne le 29.06.2022. Consulté le 21.11.2022. Disponible sur : [Macaron ou étoile, assiette...: comprendre le Guide Michelin (journaldesfemmes.fr)]
 
