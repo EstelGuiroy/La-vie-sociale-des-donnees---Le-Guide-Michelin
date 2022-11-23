@@ -121,7 +121,7 @@ CROISET, Laure. SOUBRANNE, Quentin. Pourquoi le guide Michelin doit se réinvent
 
 DELBECQUE, Céline. Le Guide Michelin fait-il toujours rêver ? L’Express – Actualité – Société. Mis en ligne le 17.01.2020. Consulté le 21.11.2022. Disponible sur : [Le Guide Michelin fait-il toujours rêver? - L'Express (lexpress.fr)](https://www.lexpress.fr/actualite/societe/le-guide-michelin-fait-il-toujours-rever_2115337.html) 
 
-Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : [Le Guide Michelin, une longue histoire](https://www.hotellerie-restauration.ac-versailles.fr/IMG/pdf/Extraits_du_dossier_de_presse_Guide_France.pdf)
+Guide MICHELIN - Le Guide Michelin, une longue histoire. Consulté le 16.11.2022. Disponible sur : [Le Guide Michelin, une longue histoire](https://guide.michelin.com/fr/fr/about-us)
 
 Guide MICHELIN – Restauration : [Restaurants MICHELIN - Le Guide MICHELIN](https://guide.michelin.com/fr/fr/restaurants)
 
