@@ -61,12 +61,12 @@ Le restaurant Anona nous a expliqué, au-delà du secret de la grille précise d
 La liste des restaurants créée par Michelin est reconnue internationalement : lors du lancement du premier guide Michelin pour Tokyo en 2007, 120 000 exemplaires ont été vendus en quatre jours au Japon. Des rapports ont indiqué que le nombre de réservations dans les restaurants étoilés avait été multiplié par plusieurs. 
 
 Que signifie donc Michelin pour les chefs et les restaurateurs ? Le restaurant Nous 4 à Paris a été répertorié sur le site web de Michelin en 2018, bien qu'il n'ait pas d'étoile.  
-![NOUS4](https://ugc.zenchef.com/3/4/8/8/2/8/3/5/6/2/1539620526_276/ff56271c06edc7cd24de0e9e4a1247c3.png) <a href="https://www.nous4restaurant.com">restaurant Nous 4</a>.  
+![NOUS4](https://ugc.zenchef.com/3/4/8/8/2/8/3/5/6/2/1539620526_276/ff56271c06edc7cd24de0e9e4a1247c3.png) <a href="https://www.nous4restaurant.com">Restaurant Nous 4</a>.  
 Cela lui a apporté plus de visibilité, plus de clients, de notoriété. Il est donc maintenant capable de fournir l’exigence dans la réponse aux attentes des visiteurs.
 
 
 Pour le restaurant Le Malu, le guide Michelin permet d'« avoir une visibilité nationale, et de rassurer la clientèle sur le rapport qualité-prix ».
-![Le Malu](https://static.wixstatic.com/media/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg/v1/fit/w_2500,h_1330,al_c/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg)
+![Le Malu](https://static.wixstatic.com/media/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg/v1/fit/w_2500,h_1330,al_c/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg) <a href="https://lemalu2.wixsite.com/restaurantlemalu">Restaurant Le Malu</a>. 
 Quand nous avons parlé des catégories étoilées du guide, Le Malu nous a appris, à propos d'un éventuel référencement, que : 
 > « Seul l'avenir le dira. Nous ne travaillons pas dans ce sens là, ce n'est pas notre objectif. Mais figurer parmi les étoilés reste je pense pour la plupart des chefs un aboutissement personnel ». 
 
