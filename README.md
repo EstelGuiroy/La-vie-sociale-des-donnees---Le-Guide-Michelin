@@ -118,7 +118,7 @@ Il ne faut d'ailleurs pas surestimer la puissance du Guide Michelin, car comme n
 
 ## Annexe
 
-Lien vers nos entretiens : (https://drive.google.com/drive/folders/1o9HBfqsu37rVlF_BlzYzLVEn2IvoxSao?usp=share_link)  
+Lien vers nos entretiens : https://drive.google.com/drive/folders/1o9HBfqsu37rVlF_BlzYzLVEn2IvoxSao?usp=share_link 
 
 
 ## Bibliographie
