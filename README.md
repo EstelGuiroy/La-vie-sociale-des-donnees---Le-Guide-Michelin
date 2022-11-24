@@ -67,6 +67,7 @@ Cela lui a apporté plus de visibilité, plus de clients, de notoriété. Il est
 
 Pour le restaurant Le Malu, le guide Michelin permet d'« avoir une visibilité nationale, et de rassurer la clientèle sur le rapport qualité-prix ».
 ![Le Malu](https://static.wixstatic.com/media/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg/v1/fit/w_2500,h_1330,al_c/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg) <a href="https://lemalu2.wixsite.com/restaurantlemalu">Restaurant Le Malu</a>. 
+
 Quand nous avons parlé des catégories étoilées du guide, Le Malu nous a appris, à propos d'un éventuel référencement, que : 
 > « Seul l'avenir le dira. Nous ne travaillons pas dans ce sens là, ce n'est pas notre objectif. Mais figurer parmi les étoilés reste je pense pour la plupart des chefs un aboutissement personnel ». 
 
