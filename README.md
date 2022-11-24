@@ -64,10 +64,12 @@ Que signifie donc Michelin pour les chefs et les restaurateurs ? Le restaurant N
 ![NOUS4](https://ugc.zenchef.com/3/4/8/8/2/8/3/5/6/2/1539620526_276/ff56271c06edc7cd24de0e9e4a1247c3.png) <a href="https://www.nous4restaurant.com">restaurant Nous 4</a>.  
 Cela lui a apporté plus de visibilité, plus de clients, de notoriété. Il est donc maintenant capable de fournir l’exigence dans la réponse aux attentes des visiteurs.
 
+
 Pour le restaurant Le Malu, le guide Michelin permet d'« avoir une visibilité nationale, et de rassurer la clientèle sur le rapport qualité-prix ».
 ![Le Malu](https://static.wixstatic.com/media/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg/v1/fit/w_2500,h_1330,al_c/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg)
 Quand nous avons parlé des catégories étoilées du guide, Le Malu nous a appris, à propos d'un éventuel référencement, que : 
 > « Seul l'avenir le dira. Nous ne travaillons pas dans ce sens là, ce n'est pas notre objectif. Mais figurer parmi les étoilés reste je pense pour la plupart des chefs un aboutissement personnel ». 
+Le Guide Michelin, s'il reste considéré par tous les restaurateurs comme LA référence en gastronomie, ne fait donc pas rêver uniquement par ses étoiles, mais pour la justesse et l'objectivité de son jugement.  
 
 Pour Kei Kobayashi, le chef du restaurant KEI à Paris, Michelin signifie avoir plus d’importance. Il a ouvert son restaurant en 2011, a obtenu une étoile Michelin l'année suivante, deux étoiles en 2017 et est devenu le premier Asiatique à obtenir trois étoiles pour la cuisine française à Paris en 2020.  
 
@@ -75,7 +77,7 @@ Pour Kei Kobayashi, le chef du restaurant KEI à Paris, Michelin signifie avoir 
 
 > « Dès l'ouverture de mon restaurant, j'ai visé les trois étoiles. Il y a beaucoup de grands chefs (indépendamment du nombre d'étoiles). Mais pour moi, ma conception du monde était quelque chose que je pouvais enfin créer après avoir obtenu trois étoiles au Michelin. J'avais visé les trois étoiles parce que je pensais qu'en tant que chef, je devais faire mon restaurant trois étoiles pour pouvoir exprimer ma vision du monde - non seulement par la cuisine, mais aussi par le choix de la vaisselle et de l'argenterie, ainsi que par la présentation de l'espace - et créer ma propre marque.  J'ai donc visé les trois étoiles de l'année ».
 
-Il en ressort que trois étoiles Michelin signifient davantage pour un chef que le simple fait d'être "bien noté dans un guide". En d'autres termes, les trois étoiles sont un objectif internalisé. Par ailleurs, trois étoiles est également un indicateur de la gestion du restaurant.
+Il en ressort que trois étoiles Michelin signifient davantage pour un chef que le simple fait d'être "bien noté dans un guide". En d'autres termes, les trois étoiles sont un objectif internalisé par beaucoup de restaurateurs. Par ailleurs, trois étoiles est également un indicateur de la gestion du restaurant.
 
 Le parcours de neuf ans de l'ouverture du restaurant à trois étoiles  
 
