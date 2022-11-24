@@ -69,7 +69,9 @@ Pour le restaurant Le Malu, le guide Michelin permet d'« avoir une visibilité 
 ![Le Malu](https://static.wixstatic.com/media/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg/v1/fit/w_2500,h_1330,al_c/e1d815_eaa07012383c4f088d4465be881a1f66~mv2.jpg)
 Quand nous avons parlé des catégories étoilées du guide, Le Malu nous a appris, à propos d'un éventuel référencement, que : 
 > « Seul l'avenir le dira. Nous ne travaillons pas dans ce sens là, ce n'est pas notre objectif. Mais figurer parmi les étoilés reste je pense pour la plupart des chefs un aboutissement personnel ». 
+
 Le Guide Michelin, s'il reste considéré par tous les restaurateurs comme LA référence en gastronomie, ne fait donc pas rêver uniquement par ses étoiles, mais pour la justesse et l'objectivité de son jugement.  
+
 
 Pour Kei Kobayashi, le chef du restaurant KEI à Paris, Michelin signifie avoir plus d’importance. Il a ouvert son restaurant en 2011, a obtenu une étoile Michelin l'année suivante, deux étoiles en 2017 et est devenu le premier Asiatique à obtenir trois étoiles pour la cuisine française à Paris en 2020.  
 
