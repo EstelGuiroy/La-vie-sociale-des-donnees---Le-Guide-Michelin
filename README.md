@@ -39,9 +39,9 @@ En outre, pour faciliter la saisie de la base de données par ses utilisateurs d
 
 Afin de pouvoir entrer dans la prestigieuse base de données, le restaurant Anona (référencé dans le Guide depuis 2020) nous a précisé qu’il était important pour un établissement d’essayer de se faire remarquer pour attirer l’attention du Guide. Pour intéresser le Michelin, il est bon pour un restaurant de faire parler de lui et prendre part à l’actualité gastronomique. Que ce soit par la presse spécialisée, le bouche-à-oreille ou via des émissions TV à forte audience comme Top Chef, un début de réputation dans le secteur est une vraie aide. De cette manière, une fois la curiosité du Guide attisée, il est des plus probables qu’un inspecteur finisse par visiter le restaurant, étape décisive pour tout établissement souhaitant être recensé dans le Guide. 
 Il est également possible d'opter pour une stratégie plus directe pour tenter de se faire référencer, comme nous l'a appris le restaurant Le Malu (référencé dans le Bib Gourmand depuis mars 2021) que nous avons également interrogé :
-> <i> « Deux possibilités: 
-- Un inspecteur se déplace au hasard dans un restaurant 
-- On envoie un dossier en expliquant ce que l'on fait comme cuisine, notre CV... » </i>
+> « Deux possibilités: 
+> - Un inspecteur se déplace au hasard dans un restaurant 
+> - On envoie un dossier en expliquant ce que l'on fait comme cuisine, notre CV... » 
 C'est ce deuxième choix qu'à fait le restaurant Le Malu, sur conseil d'autres restaurateurs, envoyant un dossier en juin 2019 pour recevoir un inspecteur en essai de table en janvier 2020. 
 
 
